@@ -6,3 +6,4 @@ I am an environmental management student focusing on international energy access
 
 LinkedIn: https://www.linkedin.com/in/asreeta-ushasri
 Biography: https://nicholas.duke.edu/people/students/ushasri
+Profile Picture: taken by Asreeta Ushasri, March 2025
