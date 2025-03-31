@@ -10,5 +10,4 @@ Biography: https://nicholas.duke.edu/people/students/ushasri
 
 Picture Credits: taken by Asreeta Ushasri
 
-
-![GitHub](https://github.com/user-attachments/assets/e61faa9a-1c4b-4ec8-9dfa-1f9a2ded020d)
+![Github2](https://github.com/user-attachments/assets/27b31d59-f59a-4397-8dd3-5a960b7bdff6)
