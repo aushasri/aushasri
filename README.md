@@ -1,7 +1,7 @@
 ## Asreeta Ushasri
 ### Duke University
 
-I am an environmental project manager with experience in qualitative research, energy transitions, quantitative analysis, GIS, and statistical modeling. My focus areas include program evaluation, international energy transitions, and wildlife conservation research. With a Master in Environmental Management, I am passionate about just energy transitions and I have worked on wildlife conservation projects. Program monitoring and evaluation remains a core aspect of my work in the environmental sector. I have a strong background in crisis communications and international affairs. I am excited to combine my quantitative and qualitative skills to support just energy programs and conservation outcomes in my career. Please find my linkedin and my biography below.
+I am an environmental project manager with experience in qualitative research, energy transitions, quantitative analysis, GIS, and statistical modeling. My focus areas include program evaluation, international energy transitions, and wildlife conservation research. With a Master in Environmental Management, I am passionate about just energy transitions and have field experience with using camera traps for ecological research. Program monitoring and evaluation remains a core aspect of my work in the environmental sector. I have a strong background in crisis communications and international affairs. I am excited to combine my quantitative and qualitative skills to support just energy programs and conservation outcomes in my career. Please find my linkedin and my biography below.
 
 LinkedIn: https://www.linkedin.com/in/asreeta-ushasri
 
